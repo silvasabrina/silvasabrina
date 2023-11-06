@@ -1,4 +1,4 @@
-🌟 Olá, eu sou Sabrina! 🌟
+🌟 Olá, sou Sabrina 🌟
 
 
 👩‍💻 Analista de Dados | Engenheira
